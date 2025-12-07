@@ -42,4 +42,4 @@ For more details, see [LICENSE](LICENSE).
 
 ## Connect
 
-Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/yourprofile) for updates, tips, and collaboration opportunities.
+Feel free to connect with me on [LinkedIn](www.linkedin.com/in/harika-velaga04) for updates, tips, and collaboration opportunities.
